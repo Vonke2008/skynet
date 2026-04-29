@@ -1,1 +1,2 @@
 # skynet
+the company known as Skynet Scientific Enterprises or S.N.S.E founded the sky chamber a machine that mimics our atmosphere and traps you inside of it the facility was held underground and since the sky chamber holds all genetic data in place during the test and wipes the subjects memory the subject did not age at all during the 20 years inside the chamber the facility has since collapsed they just now realized what was going on and broke out and are now searching the facility for an exit even though the only way out is gone, they will get out, no matter what.
